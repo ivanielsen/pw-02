@@ -1,2 +1,2 @@
 # pw-02
-ivan mujica trujillo 00168500
+Fausto Nielsen Iván Mujica Trujillo 00168500
